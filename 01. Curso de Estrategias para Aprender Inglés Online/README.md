@@ -39,3 +39,7 @@ Delimita las expectativas: aprender inglés toma tiempo por lo que no te sorpren
 Encuentra motivaciones intrínsecas, que vienen de tu interior.
 Encuentra motivaciones extrínsecas: son experiencias y motivaciones que vienen del exterior, generalmente requisitos para obtener mejores oportunidades como un nuevo trabajo.
 Es importante que los escribas para que se conviertan en objetivos que puedes especificar con la técnica SMART.
+
+https://miro.com/app/dashboard/
+
+
