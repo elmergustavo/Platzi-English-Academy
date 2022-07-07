@@ -32,6 +32,14 @@ https://owl.purdue.edu/owl/general_writing/grammar/articles_a_versus_an.html
 * A kick out button
 * A like
 * A message
+
+
+## Colors
+![](https://static.platzi.com/media/user_upload/colores-eed66b9e-9d61-4b43-be8c-7af26acce81c.jpg)
+
+
+
+
 * A notification
 * A profile
 * A query
