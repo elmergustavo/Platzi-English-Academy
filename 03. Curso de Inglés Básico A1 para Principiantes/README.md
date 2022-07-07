@@ -34,12 +34,6 @@ https://owl.purdue.edu/owl/general_writing/grammar/articles_a_versus_an.html
 * A message
 
 
-## Colors
-![](https://static.platzi.com/media/user_upload/colores-eed66b9e-9d61-4b43-be8c-7af26acce81c.jpg)
-
-
-
-
 * A notification
 * A profile
 * A query
@@ -113,4 +107,7 @@ There are se utiliza con nombres contables en plural. Como veremos a continuaci√
 ![](https://www.mosalingua.com/es/files/2017/08/fracciones-en-ingles.jpg)
 
 * https://www.mosalingua.com/es/numeros-en-ingles-de-1-a-1-millon/
+
+## Colors
+![](https://static.platzi.com/media/user_upload/colores-eed66b9e-9d61-4b43-be8c-7af26acce81c.jpg)
 
