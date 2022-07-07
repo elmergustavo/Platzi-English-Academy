@@ -97,4 +97,12 @@ There are se utiliza con nombres contables en plural. Como veremos a continuaci√
 
 ![](https://static.platzi.com/media/user_upload/platzo%205-c15e3888-282a-4401-802a-aeedad1030d0.jpg)
 
+# Numbers
+![](https://static.platzi.com/media/user_upload/platzo%206-7ca7503f-c4cd-40eb-b07a-9c875b19179f.jpg)
+![](https://www.mosalingua.com/es/files/2017/08/numeros-en-ingles-del-1-al-100-1.jpg)
+![](https://www.mosalingua.com/es/files/2017/08/Numeros-en-ingles-de-mil-a-un-millon-1.jpg)
+1[](https://www.mosalingua.com/es/files/2017/08/Numeros-ordinales-en-ingles-1.jpg)
+![](https://www.mosalingua.com/es/files/2017/08/fracciones-en-ingles.jpg)
+
+* https://www.mosalingua.com/es/numeros-en-ingles-de-1-a-1-millon/
 
