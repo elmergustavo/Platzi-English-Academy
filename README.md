@@ -12,5 +12,9 @@ Platzi English Academy es la comunidad en la que vas a aprender inglés en líne
 Beginner A1-A2
 </h1>
 
-# Curso de Inglés Gratis: Estrategias para Aprender en Línea
+
+|Challange                |
+|----------------|
+|1. [Curso de Inglés Gratis: Estrategias para Aprender en Línea](https://github.com/elmergustavo/Platzi-English-Academy/tree/master/01.%20Curso%20de%20Estrategias%20para%20Aprender%20Ingl%C3%A9s%20Online)|
+
 
