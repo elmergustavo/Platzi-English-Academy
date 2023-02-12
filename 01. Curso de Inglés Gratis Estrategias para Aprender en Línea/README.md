@@ -88,3 +88,82 @@ En resumen, los mitos pueden ser tan poderosos como les permitamos y estos puede
 Contribución creada por: Ismael H.
 
 * https://www.ebspain.es/index.php/blog/31-mitos-sobre-el-bilingueismo
+
+# El rol del estudiante y el profesor
+Los diferentes mitos y creencias al aprender inglés han influenciado por años su enseñanza y metodologías. También han cambiado del rol del estudiante y del profesor, que en la actualidad es una fusión integral de todas estas características.
+
+## Metodologías para aprender un nuevo idioma
+Históricamente, la humanidad ha encontrado distintos métodos de enseñar un nuevo idioma que son los que conocerás a continuación.
+
+* La comunicación no era relevante
+En consecuencia, los profesores memorizaban y enseñaban gramática a sus alumnos.
+
+## 2. Método de solo comunicación
+La metodología de solo comunicación consiste en que los profesores están a un segundo plano para ser la guía de los estudiantes.
+
+* Los profesores y profesoras solo brindan materiales y aportan consejos.
+Sin embargo, dejan de lado un aspecto fundamental que es la gramática para el uso e interiorización del lenguaje.
+
+* Estudiar una nueva lengua sin gramática es como una ciudad sin leyes o normas de tránsito, por lo que puede llegar a ser muy desordenada.
+
+## 3. Método de enfoque comunicativo moderno
+El método comunicativo moderno combinó los dos métodos anteriores, obteniendo resultados y una estructura muy interesante. Ahora el profesor o profesora:
+
+* Es una guía para estudiantes con recursos y consejos
+* Enseña gramática y comunicación.
+
+El único problema de este es que resultaba tener una estructura muy rígida de los que ni el profesor y los estudiantes tenían mayor flexibilidad.
+
+## 4. Método contemporáneo
+El método contemporáneo ha sido la aproximación educativa más efectiva hasta el momento cuando hablamos de aprender inglés. Toma de cada una de las distintas partes de aprendizaje y as fusiona.
+
+* Gramática
+* Comunicación
+* Flexibilidad para los alumnos y profesores.
+
+## Rol del estudiante y el profesor
+Como viste, los roles entre estudiante y profesor han evolucionado con el tiempo. Ahora, con el contexto social, tecnológico, cultural y geográfico de los estudiantes afecta su aprendizaje, este es el rol del estudiante y el profesor.
+
+## Estudiante
+El rol del estudiante dentro del sistema de aprendizaje contemporáneo se caracteriza por tener las siguientes características.
+
+* Participativo
+* Curioso
+* Motivado
+* Interesado por usar sus recursos tecnológicos
+
+## Profesor
+Dentro del nuevo sistema de aprendizaje del inglés contemporáneo se puede percibir que las tareas o deberes del profesor son:
+
+* La guía
+* El soporte
+* La principal fuente de buena retroalimentación
+
+## ¿Qué aporta Platzi a tu aprendizaje del inglés?
+El modelo de Platzi para aprender inglés es tomar las mejores partes de cada método e integrarlo de forma flexible y acompañada por un guía o profesor que brinda el contenido. La comunidad también es fundamental porque los estudiantes se ayudan entre si a aprender durante el proceso.
+
+## 1. Gramática
+Platzi cuenta con cursos que te enseñarán las bases de gramática, con excelentes profesores que te estarán acompañando a lo largo de tu aprendizaje, dándote herramientas y recursos para que tú puedas mejorar tus habilidades en inglés.
+
+## 2. Comunicación
+Todos los miércoles y viernes encontrarás sesiones en vivo donde puedes practicar tu inglés conversando, para mejorar tu comunicación. Encontrarás profesores para guiar la actividad y que se desarrolle de la mejor manera posible.
+
+## 3. Comunidad
+Puedes intercambiar experiencias y potenciar tu aprendizaje con la comunidad de Platzi en los comentarios o el grupo de Discord. ¡Es una gran oportunidad para crear tu red de contactos personales y profesionales en un espacio seguro y confiable! Inscríbete aquí
+
+## 4. Flexibilidad
+Por último, puedes aprender a tu propio ritmo, sin preocupaciones de tiempo o calificaciones. Lo importante es que mejores tus habilidades en inglés y que lo puedas soportar con increíbles proyectos,
+
+* Listening
+* Reading
+* Writing and Speaking
+
+Puedes diseñar tu propia ruta de cursos o seguir la escuela de English Academy diseñada para llevar tu nivel de inglés de 0 a 100.
+
+## La motivación al aprender una segunda lengua
+Aprender una segunda lengua es un proceso desafiante y frustrante. Debes tener claras tus motivaciones o propósitos al aprenderlo porque ese será el motor para que sigas estudiando y veas los resultados del tiempo que estás invirtiendo en aprender.
+
+## Reto
+Comenta en el panel de discusión, qué metodologías has implementado para aprender inglés
+* ¿Cómo vas a asegurar que tu rol sea muy activo y participativo durante tu aprendizaje del inglés?
+* Contribución creada con los aportes de: Ismael H.
