@@ -167,3 +167,68 @@ Aprender una segunda lengua es un proceso desafiante y frustrante. Debes tener c
 Comenta en el panel de discusión, qué metodologías has implementado para aprender inglés
 * ¿Cómo vas a asegurar que tu rol sea muy activo y participativo durante tu aprendizaje del inglés?
 * Contribución creada con los aportes de: Ismael H.
+
+# Identifica cómo aprendes inglés
+Entender cómo aprenden las personas puede ayudarte a adquirir otro nivel de conocimiento porque puedes sacar al máximo tus fortalezas y superar tus debilidades.
+
+Cuando aprendes tu cerebro se esfuerza por entender nuevas ideas, términos y conceptos, por lo tanto, debe hacer modificaciones en las redes neuronales, esto lo hace por medio de asociaciones y entendimiento con nociones adquiridas anteriormente.
+
+## ¿Qué ocurre cuando aprendemos otro idioma?
+Cuando nuestro cerebro se esfuerza por entender otra lengua, lo que generalmente hace es:
+
+Procesar el lenguaje
+* Prestar altos niveles de atención. Lo que ejercita el cerebro
+* Además, las actividades anteriormente mencionadas evitan el envejecimiento cerebral. Por lo que no solo estaremos aprendiendo un nuevo idioma, sino también cuidando la salud de este órgano.
+
+## Cómo empezar a aprender inglés en 4 pasos
+Algunos pasos para animarnos a aprender otra lengua son:
+
+* Define objetivos y metas claras
+* Dedica un tiempo específico para aprender inglés
+* Genera un avance progresivo
+* Descubre qué te gusta al aprender inglés
+
+
+1. Planea objetivos y metas
+Tener los objetivos y metas claras sobre lo que queremos lograr es muy importante en cualquier aspecto de tu vida. Incluso el de la lengua. Algunas preguntas para crearlos son:
+
+* ¿Qué quiero lograr?
+* ¿Para qué quiero lograr ello?
+* ¿Cómo puedo lograrlo?
+* Cuándo lo voy a realizar
+
+Aprender un nuevo lenguaje te exigirá el recurso más preciado de tu vida, tu tiempo, por lo que debes comprometerte para hacer los sacrificios necesarios y lograr que el inglés se vuelva parte de tu vida.
+
+
+2. Genera un avance progresivo
+Este punto involucra que puedas modificar el nivel de dificultad de tu ruta de estudio para que no sea ni muy fácil, ni muy difícil. Cumple el reto y poco a poco irás mejorando con un nivel de inglés más alto. Tal como ocurre en un videojuego.
+
+Otro aspecto relevante es que tu avance o estudio del inglés sea constante, de tal forma que estudies 1 hora cada día, en vez de 12 horas cada quien sabe cuando. Estas pequeñas porciones serán mucho más fáciles de digerir y te evitarán la frustración.
+
+3. Descubre lo qué te gusta al aprender
+Encontrar lo que disfrutas es la base de aprender algo nuevo, pues al identificar el tipo de **actividades en las que te sientes a gusto, e incluso disfrutas para aprender inglés, podrás implementar de forma natural este lenguaje a tu rutina diaria.
+
+Las técnicas de aprendizaje que más te funcionen, con las que más aprendas y sientas el progreso**, te ayudarán a avanzar de forma más eficiente en tu objetivo de aprender inglés.
+
+4. Celebra tus pequeñas victorias
+Aprender inglés es un proceso complejo, incluso para aquellos que lo dominan, por eso es muy importante que celebres cuando mejores el nivel de tu segunda lengua, para que sientas que estás avanzando y que valió la pena.
+
+Reto
+El reto de esta clase está conformado por las siguientes actividades:
+
+Descargar formulario
+
+Llena el formulario (Tomate tu tiempo)
+
+* Plasma tus objetivos
+* Escribe tus metas
+* Apunta el tiempo que le vas a dedicar
+* Describe que actividades disfrutas
+* Registra las pequeñas victorias a lo largo de tu aprendizaje
+* Realiza el formulario cada 2 o 3 meses (Cambiará a lo largo de tu aprendizaje)
+
+### Conclusión
+Estudiar inglés es un proceso largo y muy personal, realmente tú eres la persona que más conoce sobre ti mismo y puedes usar esto a tu favor, con el fin de encontrar las estrategias y técnicas que más te funcionan.
+
+* https://docs.google.com/document/d/1SkohdaZkooQqu-2fIoVAh5QxA65Te0sa4Q7CRg_ECjE/edit
+
