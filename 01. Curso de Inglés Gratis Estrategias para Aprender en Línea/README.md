@@ -269,3 +269,6 @@ La técnica de momorización busca retener en nuestra mente los conocimientos ad
 - Concentración
 - Orden
 - Lógica
+
+* https://static.platzi.com/media/public/uploads/estrategias-de-estudio_df474b6e-9e1e-45f4-8acf-3cd57541f38e.pdf
+* https://docs.google.com/document/d/1LAZ2P0bSWWMEBU0QtffpjIBVONmgaxyw7hMHnNXxEEI/edit
