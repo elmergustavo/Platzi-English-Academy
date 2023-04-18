@@ -232,3 +232,40 @@ Estudiar inglés es un proceso largo y muy personal, realmente tú eres la perso
 
 * https://docs.google.com/document/d/1SkohdaZkooQqu-2fIoVAh5QxA65Te0sa4Q7CRg_ECjE/edit
 
+# Estrategias de estudio
+Existen bastantes sistemas para aprender nuevas cosas de manera efectiva. Conoce cuáles son los fundamentos detrás de estos métodos de estudio para encontrar cuál se adapta a tus necesidades.
+
+## ¿Qué es una estrategia de estudio?
+Una estrategia de estudio es un conjunto de actividades técnicas para aprender nuevos temas y conceptos acerca de un tema de estudio de una o un estudiante. 📚
+
+### Características de una estrategia de estudio
+Lo que caracteriza a una estrategia de estudio es lo siguiente:
+
+- Promueve el autoconocimiento 🔍
+ - Conceptualizar áreas de mejora
+ * Fortalezas
+ * Identificar propia manera efectiva de aprender
+- Guía o mapa que se diseña para aprender algo 🗺️
+
+## Importancia de una estrategia de estudio
+Las estrategias de estudio son importantes porque ayudan a comprender temas de una forma más eficiente al reducir el tiempo innecesario invertido en aprender algo que no genera resultados. Además, esta metodología ejercita la mente con nuevos temas para aprender y nos ayudan a alcanzar grandes objetivos ⭐.
+
+## Diferencia entre técnica y estrategia
+La diferencia entre estos dos conceptos básicamente es que una técnica hace referencia a una actividad individual, en cambio, la estrategia es un conjunto de técnicas ordenadas especialmente para alcanzar un objetivo. 🤔
+
+## Técnicas de estudio para aprender inglés en línea
+Los pasos para estudiar y aprender inglés en línea son los siguientes.
+
+### 1. Lee y comprende
+La técnica de leer y comprender consiste en tomar una lectura referente al tema que nos interese y leer atentamente, para luego intentar comprenderla y estructurarla en nuestra mente. 📖
+
+### 2. Resume y construye un esquema
+Luego de realizar la lectura, se sacan las ideas más importantes del texto para luego posicionarlas visualmente en un esquema o también explicar con nuestras propias palabras las ideas en un escrito corto acerca del tema. 📑
+
+### 3. Memoriza
+La técnica de momorización busca retener en nuestra mente los conocimientos adquiridos por medio de la lectura, comprensión, esquema y resumen. Para lograrlo efectivamente debemos tener en cuenta los 4 siguientes conceptos: 🧠
+
+- Repetición
+- Concentración
+- Orden
+- Lógica
