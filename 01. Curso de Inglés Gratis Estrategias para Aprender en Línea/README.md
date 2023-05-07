@@ -272,3 +272,63 @@ La técnica de momorización busca retener en nuestra mente los conocimientos ad
 
 * https://static.platzi.com/media/public/uploads/estrategias-de-estudio_df474b6e-9e1e-45f4-8acf-3cd57541f38e.pdf
 * https://docs.google.com/document/d/1LAZ2P0bSWWMEBU0QtffpjIBVONmgaxyw7hMHnNXxEEI/edit
+
+# Aprendiendo inglés en línea
+A la hora de dominar un nuevo idioma debes desarrollar ciertas habilidades que te ayudarán a entender mejor los conceptos y términos nuevos que estás estudiando.
+
+* Pasive (Pasivas)
+  - Listening (Escuchar)
+  - Reading (Leer)
+  
+* Active (Activas)
+  - Speaking (Hablar)
+  - Writing (Escribir)
+  
+## Estrategias para aprender en línea
+Algunos de los obstáculos más comunes para aprender un nuevo idioma como el inglés son:
+
+* Creer que el inglés se lee como se escribe
+* Tener miedo a los sonidos diferentes
+* Falta de vocabulario
+* Incomprensión de reglas gramaticales
+* Falta de seguridad y confianza
+
+## Cómo mejorar tus habilidades de listening
+A coninuación tienes la ténicas que hacen parte la estrategia para mejorar tu habilidad de escucha en inglés.
+
+* Mira series + películas + cartoons
+* Escucha música + podcast
+* Entra a grupos de conversación
+* Esucha audiolibros
+
+## Cómo mejorar tus habilidades en reading
+Revisa con cuidado las distintas técnicas que plantea la estrategia para incrementar tu nivel de lectura en inglés.
+
+* Libros adaptados
+* Comics + biografías
+* Noticias + revistas + blogs
+* Audiolibros
+
+## Cómo mejorar tus habilidades en speaking
+Para mejorar tu pronunciación y capacidad de transmitir mensajes en inglés, práctica las siguientes técnicas:
+
+* Leer en voz alta
+* Suéltate a la hora de hablar
+* Conversaciones habituales en inglés
+* Memoriza, trabalenguas y poesía
+
+# Cómo mejorar tus habilidades en writing
+Mejora tu escritura en inglés con las siguientes técnicas:
+
+* Leer todo lo que puedas
+* Crea un diccionario personal
+* Expande tus oraciones
+* Empieza un blog personal, participa en chats y foros de internet
+
+### Conclusión
+En síntesis, aprender en línea nos es nada fácil, pero tampoco imposible. Además, al implementar las estrategias adecuadas puedes enfrentar los retos que comúnmente se presentan y obtener resultados fantásticos.
+
+* https://www.ted.com/
+* https://platzi.com/cursos/english-activities/
+* https://www.bbc.com/news
+* https://platzi.com/blog/ea-podcast-para-practicar-ingles-platzi-english-academy/
