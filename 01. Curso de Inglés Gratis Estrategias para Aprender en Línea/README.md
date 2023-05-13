@@ -332,3 +332,131 @@ En síntesis, aprender en línea nos es nada fácil, pero tampoco imposible. Ade
 * https://platzi.com/cursos/english-activities/
 * https://www.bbc.com/news
 * https://platzi.com/blog/ea-podcast-para-practicar-ingles-platzi-english-academy/
+
+# Recursos y espacios para practicar tu inglés
+
+La práctica es la acción de poner a prueba todos tus conocimientos en la vida real y puede ser a través de proyectos personales. Al tomar la iniciativa de ejercitar tu mente puedes mejorar poco a poco tus habilidades y enfocarlas en una meta real, como aprender inglés.
+
+Reflexiona sobre estos 4 puntos que te harán consciente de tu aprendizaje.
+* ¿Qué estás aprendiendo? 🤔
+* ¿Cómo puedes aplicar este concepto, en un contexto real? 🌱
+* ¿De qué otras maneras puedes aprender o aplicar este concepto? 🔀
+
+## La importancia de la práctica
+La práctica te ayuda a consolidar lo que aprendes y te otorga control, confianza, retroalimentación, memoria, automaticidad y ganancias cognitivas. Todo esto, te alentará a seguir aprendiendo y aplicarlas en la vida real⭐
+
+## Recursos de English Academy para practicar
+Dentro de English Academy tienes a tu disposición los siguientes recursos:
+
+* Cursos 📹
+* Foros 🗣️
+* Retos 🦾
+* Grupos de estudio 👨‍🎓👩‍🎓
+* Actividades en vivo 🖥️
+
+Interactive quiz
+Desarrolla el quiz interactivo para practicar lo que has aprendido hasta el momento sobre estrategias de aprender en línea.
+
+¿Qué recurso necesitas para? …
+* Tomar notas, compartir tu aprendizaje y aprender de otras personas…
+* Salir de tu zona de confort, aprender y desarrollar habilidades específicas…
+* Crear discusiones, compartir proyectos y resolver tus dudas…
+* Practicar tu speaking, conocer tus profes y compartir con la comunidad…
+* Hablar con la comunidad sobre temas que te interesen y aprender cosas nuevas…
+
+### Conclusión
+Finalmente, nos damos cuenta de que la práctica es la formas más eficaz, como eficaz de afianzar y aplicar el aprendizaje, por medio de distintas actividades y proyectos personales.
+
+“Practice makes perfect”
+
+Contribución creada con los aportes de: Ismael H.
+* https://platzi.com/clases/2643-aprender/45427-aprende-en-comunidad/
+* https://platzi.com/cursos/english-activities/
+* https://platzi.com/agenda/
+* https://platzi.com/blog/chatgpt-aprender-ingles-gratis/
+
+
+# Evalúa tus competencias
+Evaluar es la forma de medir los conocimientos, habilidades y rendimiento adquiridos en un proceso de aprendizaje en cualquier campo de conocimiento, por ejemplo, el idioma inglés. 📏
+
+¿Por qué evaluar mis competencias en inglés?
+
+Dentro de nuestro aprendizaje es muy importante saber como estamos progresando sobre aquello en lo que estamos estudiando, de tal forma que podamos identificar y sacar beneficio a los 3 elementos clave que nos regala evaluar lo aprendido, que son:
+
+* Entender 💡
+* corregir ✔️
+* Avanzar ✈️
+
+La retroalimentación nos brindan la oportunidad de saber en qué nivel de aprendizaje nos encontramos, para poder mejorar nuestro perfil.
+
+## 3 formas de medir tu nivel de inglés
+Dentro del mundo del inglés existen varias formas de evaluar nuestro conocimiento, así que conozcámoslas:
+
+### 1. Proceso de autoevaluación
+El proceso de autoevaluación se caracteriza por ponerse a prueba uno mismo o la persona por sí misma. De tal manera que identifique en que nivel de su aprendizaje se encuentra. Debería realizarse en periodos de 3 a 4 meses porque si se hace muy seguido puedes frustrarte.
+
+### 2. Test de clasificación
+Los test de clasificación se hacen al principio de cualquier proceso de aprendizaje, porque ayuda a reconocer en donde se encuentra el estudiante y planear sobre nuevos objetivos y su nivel.
+
+Los exámenes de clasificación no se deben hacer muy seguido, porque en vez de evaluar el conocimiento real, podemos entrar a jugar con nuestra memoria.
+
+### 3. Exámenes internacionales
+Los exámenes internacionales son una radiografía que indican en que nivel de inglés nos encontramos actualmente. Estos suelen ser muy variados y temporales, debido a que nuestro nivel cambia según la practica o el uso a lo largo del tiempo.
+
+
+Ejemplos:
+
+* TOEFL
+* IELTS
+* TOEIC
+* MET
+* Cambridge exams
+
+
+## Marco común Europeo de referencia para lenguas
+El marco común Europeo fue creado para estandarizar el nivel de una persona de acuerdo a las siguientes categorías que miden la habilidad y desenvolvimiento de la persona en distintos contextos.
+
+### A1-A2 🐣
+El nivel A1-A2 dice que es dependiente de fuentes externas para generar su material en el idioma.
+
+### B1-B2 🐤
+B1-B2 demuestra que la persona es más independientes de las fuentes externas, pero de igual forma se ven limitados en algunos contextos de la lengua.
+
+### C1-C2 🐓
+El nivel C1-C2 demuestra que la persona es muy capaz de comunicarse y desenvolverse en cualquier situación en la lengua.
+
+## Conclusión
+En suma, saber que debes mejorar te dan un superpoder para enfocarte en ello y seguir adelante con tu aprendizaje. De manera específica y objetiva.
+
+
+* https://platzi.com/cursos/toefl-preparation/
+* https://platzi.com/cursos/preparacion-ielts/
+* https://cvc.cervantes.es/ensenanza/biblioteca_ele/marco/cvc_mer.pdf
+
+# La importancia de conocer tu nivel de inglés
+
+Cuando sabes tu nivel de inglés, puedes avanzar de forma adecuada en tu ruta de aprendizaje y planear cuáles son tus metas a mediano y largo plazo. Conoce a continuación algunos consejos para practicar un nuevo idioma.
+
+## 1. Mide tu progreso 📏
+Medir la forma en la que aprendes una habilidad es una de las cosas que más ayuda a nuestra motivación, porque nos ayuda a comprobar que estamos progresando y que nuestro tiempo y esfuerzo vale la pena. Piensa en todas esas áreas que podrías mejorar.
+
+## 2. Estudia de manera eficiente 📊
+Al conocer tu nivel de inglés tienes claros los temas que debes aprender para avanzar en tu camino y hacerlo de la forma más eficaz. Olvida aquellos días donde practicabas sin tener una meta en tu mente y organiza todos tus logros con un plan de acción.
+
+## 3. Desarrolla tu confianza 💪
+Cuando presentas los exámenes que te certifican en una legenda extranjera puedes sentirte más cómodo o cómoda al comunicarte con extranjeros o personas que ya dominan ese nuevo idioma que estás aprendiendo.
+
+## 4. Mejora tu comunicación 🚩
+Las entrevistas en inglés te pueden ayudar a mejorar tu comunicación y ser más claro o clara al expresar cuál es tu nivel de inglés con el fin de acceder a un nuevo trabajo o asumir nuevos retos profesionales.
+
+### Conclusión
+Para sintetizar, al conocer tu nivel de inglés, tienes muy claro en qué nivel de inglés estás y para donde vas. De tal forma que puedes avanzar de la manera más eficaz posible.
+
+Conribución creada por: Ismael H.
+
+* https://platzi.com/clases/placement-test/8d8bcb91-936c-4108-bcbb-5e7ca96b50dd/
+
+
+
+
+
