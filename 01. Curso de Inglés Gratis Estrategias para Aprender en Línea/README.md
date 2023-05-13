@@ -457,6 +457,20 @@ Conribución creada por: Ismael H.
 * https://platzi.com/clases/placement-test/8d8bcb91-936c-4108-bcbb-5e7ca96b50dd/
 
 
+# Resumen de lo aprendido
+
+Durante este camino de practicar inglés descubriste a una gran comunidad que no le tiene miedo a aprender. No importa si estás en un nivel A1 o menor, en Platzi nunca es tarde para superarte y conocer nuevos idiomas para conseguir un perfil profesional más competitivo.
+
+## ¿Qué aprendiste?
+Este es solo el principio de una gran aventura que te ayudará a entender el mundo desde una perspectiva global. Algunos de los temas que viste fueron:
+* ¿Por qué el inglés es necesario?
+* Las verdades y mitos al aprender inglés
+* El rol del estudiante y el profesor
+* Estrategias para aprender inglés en línea
+* Cómo evaluar tu progreso
+* Cómo y de que forma avanzar según tu nivel de inglés actual
+* Los recursos que te ofrece Platzi para aprender a tu ritmo
+
 
 
 
