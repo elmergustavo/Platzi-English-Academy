@@ -15,4 +15,4 @@ Beginner A1-A2
 |# |Challange                |
 |---|----------------|
 |1. |[Curso de Inglés Gratis Estrategias para Aprender en Línea](https://github.com/elmergustavo/Platzi-English-Academy/tree/master/01.%20Curso%20de%20Ingl%C3%A9s%20Gratis%20Estrategias%20para%20Aprender%20en%20L%C3%ADnea)|
-|2. |[Curso de Inglés Básico A1: Conversaciones Cortas y Habituales](https://github.com/elmergustavo/Platzi-English-Academy/tree/master/02.%20Curso%20de%20Ingl%C3%A9s%20B%C3%A1sico%20A1%20para%20Principiantes%202022)|
+|2. |[Curso de Inglés Básico A1: Conversaciones Cortas y Habituales](https://github.com/elmergustavo/Platzi-English-Academy/tree/master/02.%20Curso%20de%20Ingl%C3%A9s%20B%C3%A1sico%20A1%20Conversaciones%20Cortas%20y%20Habituales)|
